@@ -6,22 +6,23 @@ Et enfin, tout l'univers qui s'est construit autour d'elles.
 
 ### L'envie D'aimer
 
-[Synthesis](1.L'envie/Synthesis.md)
-[Relationships](1.L'envie/Relationships.md)
+[Synthesis](1.Characters/01.L'envie%20D'aimer%20-%20Désirée%20Istana/Synthesis.md)
+
+[Relationships](1.Characters/01.L'envie%20D'aimer%20-%20Désirée%20Istana/Relationships.md)
 
 #### Psychological reports
 
-1. [Age 17](1.L'envie/Psychological%20report%20-%201.%20Age%2017.md)
-2. [Age 24](1.L'envie/Psychological%20report%20-%202.%20Age%2024.md)
+1. [Age 17](1.Characters/01.L'envie%20D'aimer%20-%20Désirée%20Istana/Psychological%20report%20-%201.%20Age%2017.md)
+2. [Age 24](1.Characters/01.L'envie%20D'aimer%20-%20Désirée%20Istana/Psychological%20report%20-%202.%20Age%2024.md)
 
 #### Outfits
 
-1. [Battle outfit](1.L'envie/Outfit%20-%201.%20L'envie%20battle%20outfit.md)
-2. [Sex outfit](1.L'envie/Outfit%20-%202.%20L'envie%20sex%20outfit.md)
+1. [Battle outfit](1.Characters/01.L'envie%20D'aimer%20-%20Désirée%20Istana/Outfit%20-%201.%20L'envie%20battle%20outfit.md)
+2. [Sex outfit](1.Characters/01.L'envie%20D'aimer%20-%20Désirée%20Istana/Psychological%20report%20-%202.%20Age%2024.md)
 
 ### Plaisir D'aimer
 
-[Synthesis](3.Plaisir/Synthesis.md)
+[Synthesis](1.Characters/02.Plaisir%20D'aimer%20-%20Fanny%20Hotgo/Synthesis.md)
 
 ---
 
@@ -36,7 +37,7 @@ _*L'envie goes on Azim Steppe with a mission*_<br>
 
 ### Resumes
 
-To read them, go [here](4.Resumes/Readme.md)
+To read them, go [here](3.Resumes/Readme.md)
 
 ---
 
