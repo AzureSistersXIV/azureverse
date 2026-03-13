@@ -1,0 +1,31 @@
+Orghana Hotgo
+
+Species
+Xaela aura
+
+Gender
+Female
+
+Height / Weight
+Unspecified
+
+Role
+Healer
+
+Job
+Conjurer
+
+Important Notes
+This section unintentionally left blank.
+
+
+About Orghana Hotgo
+Proud Xaela, Orghana is an old Hotgo member who lived a very long life. She found love in her tribe with an unknown male and gave birth to a little boy, Dethanon. Very attentive to her child, she raised him to be a fierce fighter. But she inadvertly also led him to be more than a warrior, to search the unknown sky and learn as much could. From that, she watched her child become less and less interested by the Steppe customs. With a sad smile, she let him go into the world, becoming an adventurer and making a name by himself.
+
+From there, she lived to take care of the rest of the tribe and its children. She received letters from her son, reading through them how the world stunned him. How the wonders of the world made him react like the child he once was. If she smiled while reading his letters at the beginning, the following correspondences worried her. She learnt how he joined a mercenary group who looked more like bandits and pirates. If Dethanon defended them at the beginning, he became less friendly to them with time. When she received the letter announcing her he left the group after a beating, Orghana she breathed a sigh of relief.
+
+While awaiting her child letters, she helped to raised others tribe children. She became to be known as the tribe substitute mother. The one where the children went when they needed comfort, advices or slight little nudges in the right directions. It gave her informations how the tribe lived and fared into the grand scheme of the Steppe. Conflicts with different tribes were growing and she began to worry for the tribe too. The weight of her worries growing tirelessly.
+
+When the letter announcing her son's decision to settle down with a young woman, Orghana heart was happy. Finally her son would be happy, with his own family. What her surprise was when a year letter, she received a strange package with one letter : a little baby girl, cooing to her with her heterochromic look. From there, Orghana life lost all reason. The tribe went crazy. The Dotharl became restless towards the Hotgo. Her own tribe asked she abandom her own grandchild because of her powerful ether, who could be dangerous with the tribe emotional ether. When the choice to abandon Fanny or to leave the tribe, Orghana made the rash decision to quit the tribe. Her heart couldn't let go of her own blood.
+
+Since that event, she raises Fanny likes she did Dethanon. Her tired heart became more and more heavy with time. Her son Dethanon died a few years after her banishment. The Hotgo tribe disappeared under the Dotharl wrath. Now she awaits a sign, from the stars, the moon and the sun. Something telling her the weight on her heart would go. One grandchild would appear soon, isn't ?

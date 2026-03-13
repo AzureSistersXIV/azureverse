@@ -1,0 +1,46 @@
+Eudialyte Soilanteaux
+
+Species
+Duskwight elezen
+
+Gender
+Female
+
+Role
+Damage dealer
+
+Job
+Red Mage (specializing in blending white healing magic and black offensive magic)
+
+Eventual titles
+Dataweave Duelist
+
+Sexuality
+Bisexual
+
+Important Notes
+Trivia:
+- A naturally friendly individual, she grew up among a large group of Alexandrian children.
+- Unaware of her privilege while raised in wealth, her transition to adulthood was marked by a harsh awakening to the poverty endured by others.
+- Prioritizes style in both attire and demeanor, often appearing superficial to outsiders.
+
+Physical Description:
+- Mid-length white hair and violet-hued skin.
+- Dark red eyes obscured by large black glasses.
+- Ears resembling a Hyur’s, atypical for an Elezen, with slight deformities at the tips.
+- Lips painted with deep ruby lipstick.
+- Attire: A wide-brimmed hat (white with a dark red outer edge), a dark red vest over a black top, black-and-white trousers, elbow-length sleeves, white wrist-length gloves, and a dark leather cross-body strap.
+
+
+About Eudialyte Soilanteaux
+Background:
+Eudialyte, an Eldite (Ninth Reflection Elezen named after rare gems, distinct from Hyune and Milala races), was raised in Neo Alexandria’s affluent district, Solution 9. As a child, her world revolved around friends, family, and fashion, blissfully ignorant of the “street rats”—parentless children surviving on scraps—in Solution 9’s underbelly.
+
+Her life fractured when her father died young. Neo Alexandria’s regulator—a device that stores souls for resurrection but enforces compliance by erasing “disruptive” memories of the deceased—purged her recollections of him. Only his rapier, focus, and journals remained. Defying the regulator’s control, she abandoned it and immersed herself in his writings. These revealed his lifelong struggle to fuse white and black magic into red magic, igniting her obsession. To her, mastering red magic became a tether to his legacy.
+
+Over years, she experimented with aetheric balance, eventually achieving mastery alongside friends. While they excelled in singular magics, she perfected their fusion, creating melee combos culminating in spells like Verholy and Verflare. Her friends later gifted her a Neo-Alexandrian red mage outfit, now her signature attire.
+
+Recent Events:
+- Zoraal Ja’s Attack: During the assault, regulators failed to protect her group. Friends perished repeatedly, losing souls and memories, but Eudialyte retained hers. She fought fiercely to save survivors until the Warrior of Light intervened. Witnessing peers’ terror of death firsthand, she vowed never to forget their struggles.
+- Rising Fame: Her red magic prowess made her a celebrity in Solution 9. Though research on the art surged, recruits struggled with its physical and mental demands. Eudialyte, unable to articulate her instinctive techniques, seeks methods to simplify training.
+- L'envie D'aimer: Reports of an Au Ra woman in Shaaloani—L'envie D'aimer—wielding separate white and black magics have captivated Eudialyte. She now yearns to meet her, hoping to uncover Eorzea’s magical traditions.

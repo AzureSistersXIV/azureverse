@@ -1,0 +1,40 @@
+Plaisir D'aimer
+
+Species
+Raen aura
+
+Gender
+Female
+
+Height / Weight
+146.05cm/45kg
+
+Role
+Tank
+
+Job
+Warrior
+
+Important Notes
+This section unintentionally left blank.
+
+
+About Plaisir D'aimer
+Born Fanny, she is the unusual warrior of the Steppe as she is the only Raen au ra known. Her first memory is from her grandmother Orghana cursing the Hotgo tribe to exile the both of them for the color of her scales. It was way later she learnt, her own father, a xaela warrior known as Dethanon, went abroad to send money to his tribe, got itched to a Raen woman and got a child her. As he couldn't raise her comfortablely, he sent her to his own mother to care for her. The tribe asked Orghana to abandon her as she wasn't like them, she could support the Steppe customs. The Raen ancestors fleed the Steppe, she would follow their steps. Orghana refused and got exiled with Fanny.
+
+The woman and the child went from invisible spots to invisible spots, eating from what they could find, looking for each other. Fanny took the way of the warrior, deciding to help her gran, "the old crone" as she called her affectively. She brought back rich meat from then.Fanny met numbers of Xaela, wanting to fight. Some more deadly than others. She had to roll with those meetings, learning how and when to fight as the warrior she was. And when she has to flee, to survive. Sure, her pride was never high. Sure, many looked down on her because of her Raen scales. But she didn't accept it was fate for her to let people step on her. She trained, lots. She fighted more. She took down beasts bigger and bigger. She won over more and more powerful warrior.
+
+It was only when she began to fight khan and khatun she realized how powerful she was. Those people used their inner beast more and more against her. They unleashed their rage, their violence, their whole being into the fight. She tried too. She wanted it. But it felt like something was locked in her. Something stopping her to release her own power. So she continued training, she followed fighting other warriors. And got to the point where she was matching Oronir and Dotharl warriors, head to head. She gets into weekly fights with Sadu Dotharl, and others.
+
+When Cirina Mol joined her and Sadu after a fight, she discovered she had friends. Some were rivals, but she succeeded to create bonds with people, even if she was a raen. Fanny knows she has to continue to fight. To protect herself and her gran. She watches her and sometimes, she sees how she looks the stars, like awaiting a sign. Something to show an important event will happen. What ? She doesn't know. L'envie D'aimer cannot appear soon enough to change her world completely...
+
+
+Likes
+Strong Alcoholic beverages
+Moon & stars
+Flirting
+Hunting & fighting
+
+Dislikes
+Yols
+Dull people
